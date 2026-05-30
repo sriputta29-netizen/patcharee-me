@@ -1,2 +1,1 @@
-# patcharee-me
-This is my github profile
+sriputta29-netizen
